@@ -22,4 +22,4 @@ this we have been told to value:_**
 
 **_That is, while the items on the left sound nice in theory, we’re an enterprise company, and there’s no way we’re letting go of the items on the right._**
 
-Cobbled together one Saturday morning before breakfast by [Kerry Buckley](@kerrybuckley.org), following an article by Ron Jeffries and [this suggestion](http://twitter.com/Eastmad/status/22276560010) from Eastmad.
+Cobbled together one Saturday morning before breakfast by [Kerry Buckley](kerrybuckley.org), following an article by Ron Jeffries and [this suggestion](http://twitter.com/Eastmad/status/22276560010) from Eastmad.
