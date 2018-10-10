@@ -1,7 +1,7 @@
 # Manifesto for Half-Baked Agile Software Development
 
-We have heard about new ways of developing software by paying consultants and reading Gartner reports. Through
-this we have been told to value: 
+**We have heard about new ways of developing software by paying consultants and reading Gartner reports. Through
+this we have been told to value:** 
 
 ## Individuals and interactions over processes and tools
 ####   and we have mandatory processes and tools to control how those individuals (we prefer the term ‘resources’) interact
