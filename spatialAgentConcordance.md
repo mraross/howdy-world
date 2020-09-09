@@ -16,8 +16,8 @@ Don't let the wrong name slip|Oh no, you let the wrong word slip
 Through your royal grip| While kissing persuasive lips
 Odds are he won't sleep until tomorrow|Odds are he won't live to see tomorrow
 =======|======
-Droning up the Sunshine Coast on Sunday|Swingin' on the Riviera one day
-Driving LIDAR down the One on Monday|And then layin' in the Bombay alley next day
+Droning up the Sunshine Coast on one day|Swingin' on the Riviera one day
+Driving LIDAR down the One the next day|And then layin' in the Bombay alley next day
 Every single day| Ah, be careful what you say
 He maps another bay|Or you'll give yourself away
 Odds are he won't sleep until tomorrow|Odds are he won't live to see tomorrow
