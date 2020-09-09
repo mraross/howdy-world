@@ -1,4 +1,4 @@
-|Spatial Agent|Secret Agent|
+|Spatial Agent Man|Secret Agent Man|
 |:---:|:---:|
 There's a man who makes crown maps in Smithers | There's a man who leads a life of danger
 Tracing mountain slopes gives him the jitters  |To everyone he meets he stays a stranger
