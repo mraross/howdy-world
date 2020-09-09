@@ -14,7 +14,7 @@ Beware of pretty places that you find|Beware of pretty faces that you find
 A pretty place can hide an evil mine|A pretty face can hide an evil mind
 Don't let the wrong name slip|Oh no, you let the wrong word slip
 Through your royal grip| While kissing persuasive lips
-Odds are he won't sleep until tomorrow|Odds are he won't live to see tomorrow
+Odds are he won't sleep until tomorrow|Odds are you won't live to see tomorrow
 =======|======
 Droning up the Sunshine Coast on one day|Swingin' on the Riviera one day
 Driving LIDAR down the One the next day|And then layin' in the Bombay alley next day
